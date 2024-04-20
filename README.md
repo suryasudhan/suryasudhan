@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **suryasudhan2000@gmail.com**
 
-- ⚡ Fun fact **No Hugs and Kisses,Only Bugs and Fixes**
+- ⚡ Fun fact **No One Trustable,Only Variable**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
